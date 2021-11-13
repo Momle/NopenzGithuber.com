@@ -1,3 +1,3 @@
-# Github
+# Github Games
 # Games
 # Website
